@@ -1,4 +1,4 @@
-## Boas vindas ao meu perfil ❤️
+## Boas vindos ao meu perfil ❤️
 
 Meu Nome é Ewerton
 
